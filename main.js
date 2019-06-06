@@ -1,5 +1,1 @@
-ojcm kffjhjdhfjdfsk
-ot ojcnfnbfjjrhf
-ghfhgjfgh
-kfkfjgk
-ruyturty
+Дуже важлива інфа
